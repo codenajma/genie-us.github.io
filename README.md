@@ -1,2 +1,2 @@
 # genie-us.github.io
-Online fashion designers
+Your one-stop Online Fashion Designers
